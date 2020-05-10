@@ -1,2 +1,2 @@
-# cult
+# Music cult
 
